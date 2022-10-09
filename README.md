@@ -1,0 +1,2 @@
+# lebiblesoncrosshair
+copy right code 
